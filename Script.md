@@ -26,7 +26,10 @@ He followed the sound, trying to imagine what creature could make such a lovely 
 He noticed a growing, unbearable urge to dance as he got closer to the sound.
 It began to feel like an itch that could only be scratched with some sickest moves known to man.
 He gave in, and began to dance, and, like magic, a unicorn appeared!
-That's how Egroeg met the Unicorn King who granted him magic powers.
+It was the Unicorn King!
+Stupefied with amazement, Egroeg didn't notice the Zookeeper sneaking up behind him.
+"Mwahahaha! You've fallen for my trap. Now I shall turn you into a frog!", the Zookeeper screamed with excitement.
+That's how Egroeg met the Unicorn King who granted him magic powers and became the Frog King.
 The end.
 
 ## Cast
