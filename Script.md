@@ -22,7 +22,9 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Egroeg met the Unicorn King who granted him magic powers.
+Egroeg met the Unicorn King who granted him magic powers, but, out of nowhere, the Zookeeper appeared!
+"You have found my treasure! And now you will pay!", said the Zookeeper.
+And that's how Egroeg became the Frog King.
 The end.
 
 ## Cast
