@@ -22,7 +22,11 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Egroeg met the Unicorn King who granted him magic powers.
+He followed the sound, trying to imagine what creature could make such a lovely sound.
+He noticed a growing, unbearable urge to dance as he got closer to the sound.
+It began to feel like an itch that could only be scratched with some sickest moves known to man.
+He gave in, and began to dance, and, like magic, a unicorn appeared!
+That's how Egroeg met the Unicorn King who granted him magic powers.
 The end.
 
 ## Cast
